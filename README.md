@@ -1,0 +1,3 @@
+- 👋 Hi, I’m @DarKForest0814
+- 👀 I’m interested in coding in general, specifically in the field of AI.
+- 📫 Reach out to me via my email address yassin_m@web.de
